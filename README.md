@@ -1,1 +1,1 @@
-Game adventure of Team A
+Game Adventure of Team A
